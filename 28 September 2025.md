@@ -74,7 +74,9 @@ Kordinasi ke pihak ktoz
 1. 
 ## Catatan 
 1. pada saat pembagian tugas pembawaan proposal lakukan 1 kelompok di wilayah yang berdekatan 
-2. sampaikan ke divisi sponsorship untuk di beritahu semisal ada orang dalam untuk memasukan proposal. 
+2. sampaikan ke divisi sponsorship untuk di beritahu semisal ada orang dalam untuk memasukan proposal.
+3. sebelum tanggal 5 itu ranngkaian kegiatan sama estimasi biaya sudah ada
+4. jadi tanggal 6 bisa mulai sebar proposal
 
 
 
